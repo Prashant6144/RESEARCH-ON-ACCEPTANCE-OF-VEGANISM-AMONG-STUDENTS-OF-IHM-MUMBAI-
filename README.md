@@ -1,0 +1,2 @@
+# RESEARCH-ON-ACCEPTANCE-OF-VEGANISM-AMONG-STUDENTS-OF-IHM-MUMBAI-
+Conducted research on the "Acceptance of Veganism Among Students of IHM Mumbai," surveying students to assess awareness and attitudes towards veganism. Analyzed key factors such as health, ethics, and environment. Wrote a report detailing findings and offering recommendations to promote plant-based diets within the student community.
